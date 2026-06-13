@@ -1,2 +1,2 @@
 # boa noite!
-# GAbriel, 23 anos, chorozinho céara
+# Gabriel, 23 anos, chorozinho céara
